@@ -1,1 +1,0 @@
-[todd's personal site](https://shijie-todd.github.io)
